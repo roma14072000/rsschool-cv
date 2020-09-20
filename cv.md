@@ -2,8 +2,9 @@
 
 ## My name is Roman Kukhnovets
 Contacts:
-*My phone number is +375(29)242-48-12
-*My e-mail is roma14072000@gmail.com
+* My phone number is +375(29)242-48-12
+* My e-mail is roma14072000@gmail.com
+* My nickname in discord is romakukhnovets#1707
 
 *I'm cheerful and very responsible person. I can easily adapt to any conditions and I am ast learner. 
 I am interested in everything that surrounds me. I like to communicate with new people, like to read and otherwise develop.*
